@@ -9,3 +9,4 @@
 - Chicken Soup for the Soul: Boost Your Brain Power!
 - Mahashweta - By sudha murthy (Read again - Favorite Novel)
 - Wise and otherwise - By sudha murthy
+- Tiny Beautiful things - By Cheryl Strayed
