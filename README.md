@@ -10,3 +10,6 @@
 - Mahashweta - By sudha murthy (Read again - Favorite Novel)
 - Wise and otherwise - By sudha murthy
 - Tiny Beautiful things - By Cheryl Strayed
+
+## Books I read in 2022
+- Nightingles at War
